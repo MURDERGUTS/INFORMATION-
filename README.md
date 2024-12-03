@@ -3,7 +3,7 @@ howdy!!! this is just some information about me, feel free to read !! ^_^
 Personality
 I can come off as weird and awkward at first, I'm not much of a social person at best, but I try! I can be serious sometimes and legitimately use old English on you, so my way of typing/talking would regard based on the person I'm talking with, GEN z or old english/formal. I've got a pretty bad temper, but I TRY to restrain myself. 
 
-[Note ]: Alot of stomach aches most of the time, plus chest pain. So that will be one of the reasons I might be AFK randomly w/o telling why/leave the game w/o telling.
+[ Note ]: Alot of stomach aches most of the time, plus chest pain. So that will be one of the reasons I might be AFK randomly w/o telling why/leave the game w/o telling.
 
 Fandoms I'm in:
 ALOT OF FANDOMS.
