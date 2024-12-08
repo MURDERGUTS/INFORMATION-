@@ -7,7 +7,7 @@ I can come off as weird and awkward at first, I'm not much of a social person at
 
 Fandoms I'm in:
 ALOT OF FANDOMS.
-Mouthwashing, O.K K.O let's be heroes!, SpongeBob SquarePants, Villanous, the cult family, circus in the sky, ocean terror, days union(I love roblox myths basically, to shorten the process of that), adventure time/Fiona and cake, gravity falls, salad fingers, sally face, franbow, little misfortune, little nightmares, baldis basics(used to), fnf(used to), cemetery Mary & here for sweethearts, unikitty, creepypasta/pokepasta, AFK arena, cookie run kingdom, don't hug me im scared(used to), the arcana, FAITH: the unholy trinity, steven universe(used to), the mandela catalogue/the walten files/boiled one phenomenon/boisvert (again, alot of analog horrors), rick and morty(partially), black christmast, spooky month(partially), and etc.
+Mouthwashing(used to), O.K K.O let's be heroes!, SpongeBob SquarePants, Villanous, the cult family, circus in the sky, ocean terror, days union(I love roblox myths basically, to shorten the process of that), adventure time/Fiona and cake, gravity falls, salad fingers, sally face, franbow, little misfortune, little nightmares, baldis basics(used to), fnf(used to), cemetery Mary & here for sweethearts, unikitty, creepypasta/pokepasta, AFK arena, cookie run kingdom, don't hug me im scared(used to), the arcana, FAITH: the unholy trinity, steven universe(used to), the mandela catalogue/the walten files/boiled one phenomenon/boisvert (again, alot of analog horrors), rick and morty(partially), black christmast, spooky month(partially), and etc.
 
 uhh what do i say
 
